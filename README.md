@@ -1,2 +1,5 @@
 # 3trimestre
-Colegi
+Colegio estadual joão de faria pioli
+douglas e fabio junior
+meu projeto de pensamento computacional
+meu site é sobre loja
